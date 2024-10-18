@@ -1,0 +1,2 @@
+# autocuidado
+sobre cuidado pessoal.
